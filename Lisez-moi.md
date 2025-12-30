@@ -8,4 +8,4 @@ Le grand soleil est parti, le temps d'être ensemble est fini à partir de maint
 « Dites-moi ! Ne m'ignorez pas ! »
 « Pourquoi vous nous séparez ? »
 
-*« 3 ans est assez, t'as choisi de ne rien faire. T'as laissé le temps cours sans bénefice. Alors c'est ta faute, tu choississais l'ignorer. Rien d'effort de les prendre. »*
+*« 3 ans sont assez, t'as choisi de ne rien faire. T'as laissé le temps cours sans bénefice. Alors c'est ta faute, tu choississais l'ignorer. Rien d'effort de les prendre. »*
